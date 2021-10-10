@@ -1,4 +1,4 @@
-👋 Hey, I’m Blood!
+👋 Hey, I’m Mink!
 👀 I’m interested in cardiology.
 🌱 Singing's a hobby xD
 💞️ Animal lover
