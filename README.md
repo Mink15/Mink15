@@ -1,6 +1,6 @@
-👋 Hey, I’m Mink!
+👋 Hey, I’m Blood!
 👀 I’m interested in cardiology.
-🌱 Singing's a hobby xD
+🌱 Singing's a hobby
 💞️ Animal lover
-📫 My ID on disc is Blood_CashinOut#4768, if you want to reach me!
+📫 My tag on discord is Dealive#0001, if you want to reach me!
 Cya aroundd
